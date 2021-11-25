@@ -1,1 +1,1 @@
-# dominic.duxbury.github.io
+# domDuxbury.github.io
